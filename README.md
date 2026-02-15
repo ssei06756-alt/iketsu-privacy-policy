@@ -28,6 +28,7 @@ https://policies.google.com/privacy
 ## 4. お問い合わせ
 
 ご質問がある場合は、以下までご連絡ください。
+
 ssei06756@gmail.com
 
 ## 制定日
